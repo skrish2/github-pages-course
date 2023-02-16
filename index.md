@@ -19,7 +19,7 @@ But we can't :-(
 </p>
 
 
-This DOES NOT mean that we shouldn't celebrate every minute!
+So we should celebrate every minute!
 <p align="left">
 <img src="https://media.giphy.com/media/qLHzYjlA2FW8g/giphy.gif" />
 </p>
